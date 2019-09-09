@@ -1,3 +1,9 @@
+# Reading Prep: What is a Book?
+
+#### Olivia Taylor
+
+## Questions or Observations
+
 1.  Through the history of the development of the book, practices
     evolved. Some of these practices were lost or altered over time,
     while some developed into our modern codex. The title page of the
@@ -28,5 +34,3 @@
     more wide-spread, just as they did with the invention of the
     printing press. Are we experiencing a similar cultural transition in
     how we relate to books?
-
-

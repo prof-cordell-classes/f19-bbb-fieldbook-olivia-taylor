@@ -1,3 +1,9 @@
+# Reading Prep: Introductions
+
+#### Olivia Taylor
+
+## Questions or Observations
+
 1.  The role of books can be vastly different in the live of two people,
     or two societies. “The Bookmaking Habits of Select Species” by Ken
     Liu describes how books and information can be interpreted and
@@ -15,5 +21,3 @@
     story through books. While challenging the conventions of a book,
     each design feels very recognizable as a book. How have we developed
     the innate ability to recognize something despite atypicality?
-
-
